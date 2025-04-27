@@ -1,3 +1,0 @@
-# STARTER-gsa05
-
-
